@@ -1,4 +1,4 @@
 # sandoval123
 
-'Dream'
-My dream is to finish my study and to help my parent.
+'Title Proposal'
+"Design of a an Interactive Mobile System for Electricity Usage Notifications, Online Billing, and Latest Updates"
