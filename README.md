@@ -1,4 +1,4 @@
 # sandoval123
 
-'Title Proposal'
-"Design of a an Interactive Mobile System for Electricity Usage Notifications, Online Billing, and Latest Updates"
+'Favorite Games'
+My favorite games are mobile legends and blood strike. 
