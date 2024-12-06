@@ -1,4 +1,4 @@
 # sandoval123
 
-'Favorite Place'
-My favorite place ofcourse in Puerto Galera its many beautiful resort and its my hometown.
+'Dream'
+My dream is to finish my study and to help my parent.
