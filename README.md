@@ -1,4 +1,4 @@
 # sandoval123
 
-'Favorite Food'
-My favorite food is adobo and sinigang.
+'Favorite Place'
+My favorite place ofcourse in Puerto Galera its many beautiful resort and its my hometown.
