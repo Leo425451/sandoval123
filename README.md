@@ -1,4 +1,4 @@
 # sandoval123
 
-'Crush'
-My crush is Bini Maloi ayieee!!!
+'Favorite Food'
+My favorite food is adobo and sinigang.
